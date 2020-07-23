@@ -1,1 +1,0 @@
-# karunon.github.io だよ
